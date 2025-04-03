@@ -1,0 +1,1 @@
+# privacy-policy-data-not-collected
